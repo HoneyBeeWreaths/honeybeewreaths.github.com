@@ -1,2 +1,0 @@
-# HoneyBee.github.com
-Wreaths 
